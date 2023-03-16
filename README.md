@@ -1,1 +1,1 @@
-Ass Software - gg.gg/AssSoftware
+https://gg.gg/AssSoftware
