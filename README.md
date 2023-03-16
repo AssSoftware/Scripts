@@ -1,1 +1,1 @@
-I am Gay
+Ass Software - gg.gg/asssoftware
