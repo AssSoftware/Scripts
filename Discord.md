@@ -1,1 +1,0 @@
-https://gg.gg/AssSoftware
